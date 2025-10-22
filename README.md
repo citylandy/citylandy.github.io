@@ -36,6 +36,7 @@ No fluff — just **actionable breakthroughs** to land dream jobs, skyrocket inc
 📘 *Outcome:* Land a job aligned with your purpose and market value.
 
 ---
+![Untitled](https://github.com/user-attachments/assets/4f39908d-cb07-4f60-b34c-a80ff5d6259a)
 
 ## 🧠 Skill Reset Challenge
 
